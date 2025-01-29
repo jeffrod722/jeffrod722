@@ -1,6 +1,6 @@
 ## Jefferson Rodriguez 🥷
 
-<img src="https://github.com/user-attachments/assets/946f0fc3-fd5b-4833-a3b4-5e08fa6023a4" alt="1_EGgUvJzlC-Q2tdqkWcSpIw" width="500" height="400">
+<img src="https://github.com/user-attachments/assets/946f0fc3-fd5b-4833-a3b4-5e08fa6023a4" alt="1_EGgUvJzlC-Q2tdqkWcSpIw" width="250" height="200">
 
 
 I am currently a college student in the Information Systems and Technology program. I aim to acquire my associates and hopefully transfer to Rutgers in the future to go for my bachelors.
